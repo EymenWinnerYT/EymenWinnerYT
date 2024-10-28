@@ -2,3 +2,4 @@
 - I interested on Tech
 - I currently learn Java, PHP, Microsoft VB 6.0 and x86 asembly languance
 - Pronounce: he/him
+- My favorite games: Minecaft, 2007 Roblox and Sonic the hedhegog
